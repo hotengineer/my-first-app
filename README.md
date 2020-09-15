@@ -1,14 +1,3 @@
-# send-nudes
-send nudes
-send nudes
-send nudes
-send nudes
-send nudes
-send nudes
-send nudes
-send nudes
-send nudes
-send nudes
-send nudes
-send nudes
+# friends
+friends are good
 send nudes
